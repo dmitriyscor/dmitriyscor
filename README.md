@@ -1,5 +1,4 @@
-Here's my website
-https://gtrybtrby.000webhostapp.com
+more info here https://sites.google.com/view/dmitriys-portfolio/home
 
 
 
