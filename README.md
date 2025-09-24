@@ -1,1 +1,2 @@
-my discord .dmitriiyyyy
+discord .dmitriiyyyy
+leetcode dmitriiyyyy
